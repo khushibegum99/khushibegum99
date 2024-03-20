@@ -1,6 +1,6 @@
+![WEB DEVELOPER](https://scontent.fdac4-2.fna.fbcdn.net/v/t39.30808-6/428374782_402706702133440_2721808066680516626_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=5f2048&_nc_ohc=YbGU19tnNzsAX-kyAb7&_nc_zt=23&_nc_ht=scontent.fdac4-2.fna&cb_e2o_trans=q&oh=00_AfCE6LuvZEcIFF46zH1Sz1YoRqF2xCFUi9P1hrSKjePYXQ&oe=65FF25D7)
 ### Hi there 👋, MD. NABBI
 #### WEB DEVELOPER
-![WEB DEVELOPER](https://scontent.fdac4-2.fna.fbcdn.net/v/t39.30808-6/428374782_402706702133440_2721808066680516626_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=5f2048&_nc_ohc=YbGU19tnNzsAX-kyAb7&_nc_zt=23&_nc_ht=scontent.fdac4-2.fna&cb_e2o_trans=q&oh=00_AfCE6LuvZEcIFF46zH1Sz1YoRqF2xCFUi9P1hrSKjePYXQ&oe=65FF25D7)
 
 My name is MD. NABBI 🧑‍🎓
 I live in Bangladesh 
